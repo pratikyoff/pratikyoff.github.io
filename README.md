@@ -1,1 +1,0 @@
-# pratikyoff.github.io
